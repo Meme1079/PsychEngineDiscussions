@@ -11,3 +11,4 @@ This dicussions will be the real psych discussions that we sould have done, a st
 2. Bambi is allowed, but don't do only that
 3. Memes are allowed
 4. 3. NO TOXIC
+5. No sfnw
