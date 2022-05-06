@@ -1,14 +1,26 @@
-# PsychEngineDiscussions
-here we got a better place for everyone
+# Theoyeah's PsychEngineDiscussions
+Welcome! We got a better place for everyone like you, with actual great moderation and discussions that maybe can help you.
 
-
-This dicussions will be the real psych discussions that we sould have done, a strong place, an interactive place, where anyone can hang out or ask help with a good moderation
-
+We accept any type of discussion, but make sure to read the rules here:
 
 # Rules
 
-1. No spam
-2. Bambi is allowed, but don't do only that
-3. Memes are allowed
-4. 3. NO TOXIC
-5. No sfnw
+1. No spamming (Creating discussions, reply spam, etc.)
+2. Dave & Bambi is allowed, but remember to do something different sometimes, not always.
+3. Memes are allowed.
+4. No toxicity, seriously.
+5. No NSFW, we all know how this works.
+
+#
+
+![TheoyeahPsychEngineDiscussions](https://user-images.githubusercontent.com/91833725/167202387-7fa0e212-9bc9-4578-9811-b41451409182.png)
+
+#
+
+# Credits
+
+PsychEngineDiscussions is made by Theoyeah, this is not official and the original Psych Engine is made by ShadowMario.
+
+README modified by Pico8430.
+
+Psych Engine: https://github.com/ShadowMario/FNF-PsychEngine
