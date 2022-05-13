@@ -8,7 +8,7 @@ We accept any type of discussion, but make sure to read the rules here:
 1. No spamming (Creating discussions, reply spam, etc.)
 2. Dave & Bambi is allowed, but remember to do something different sometimes, not always.
 3. Memes are allowed.
-4. No toxicity, seriously.
+4. Don't abuse toxicity, seriously.
 5. No NSFW, we all know how this works.
 
 #
