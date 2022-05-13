@@ -3,6 +3,7 @@ Welcome! We got a better place for everyone like you, with actual great moderati
 
 We accept any type of discussion, but make sure to read the rules here:
 
+(let's just wish shadowmario don't find this)
 # Rules
 
 1. No spamming (Creating discussions, reply spam, etc.)
