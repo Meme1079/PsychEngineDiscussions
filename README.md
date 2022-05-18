@@ -11,6 +11,8 @@ We accept any type of discussion, but make sure to read the rules here:
 3. Memes are allowed.
 4. Don't abuse toxicity, seriously.
 5. No NSFW, we all know how this works.
+6. Don't make useless posts like : OMMHMGGGG II LEAVINNN !!1!!
+7. If you need help, check if there's not already the thing you're looking for
 
 #
 
