@@ -14,6 +14,7 @@ We accept any type of discussion, but make sure to read the rules here:
 6. Don't make useless posts like : OMMHMGGGG II LEAVINNN !!1!!
 7. If you need help, check if there's not already the thing you're looking for
 
+If you wish to do an ban appeal, please go to this link https://docs.google.com/forms/d/1kX2q8-OtHIPoVuXaPA8ERd_-AZTsyvydNEHUwyT662c/edit?usp=forms_home&ths=true
 #
 
 ![TheoyeahPsychEngineDiscussions](https://user-images.githubusercontent.com/91833725/167202387-7fa0e212-9bc9-4578-9811-b41451409182.png)
