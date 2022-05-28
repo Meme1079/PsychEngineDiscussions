@@ -9,10 +9,11 @@ We accept any type of discussion, but make sure to read the rules here:
 1. No spamming (Creating discussions, reply spam, etc.)
 2. Dave & Bambi is allowed, but remember to do something different sometimes, not always.
 3. Memes are allowed.
-4. Don't abuse toxicity, seriously.
-5. No NSFW, we all know how this works.
-6. Don't make useless posts like : OMMHMGGGG II LEAVINNN !!1!!
-7. If you need help, check if there's not already the thing you're looking for
+4. No slurs (if there are, please report to me)
+5. Don't abuse toxicity, seriously.
+6. No NSFW, we all know how this works.
+7. Don't make useless posts like : OMMHMGGGG II LEAVINNN !!1!!
+8. If you need help, check if there's not already the thing you're looking for
 
 If you wish to do an ban appeal, please go to this link https://docs.google.com/forms/d/1kX2q8-OtHIPoVuXaPA8ERd_-AZTsyvydNEHUwyT662c/edit?usp=forms_home&ths=true
 #
