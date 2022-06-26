@@ -15,8 +15,9 @@ We accept any type of discussion, but make sure to read the rules here:
 7. No NSFW, we all know how this works.
 8. Don't make useless posts like : OMMHMGGGG II LEAVINNN !!1!!
 9. If you need help, check if there's not already the thing you're looking for
-10. IM NOT ACCEPTING ANYTHING LIKE (Ban this guy!!!) IF IT WAS DONE OUTSIDE MY DISCUSSIONS
-11. No T r o l l i n g
+10. If need to delete a discussion, please tell me
+11. IM NOT ACCEPTING ANYTHING LIKE (Ban this guy!!!) IF IT WAS DONE OUTSIDE MY DISCUSSIONS
+12. No T r o l l i n g
 
 If you wish to do an ban appeal, please go to this link https://docs.google.com/forms/d/1kX2q8-OtHIPoVuXaPA8ERd_-AZTsyvydNEHUwyT662c/edit?usp=forms_home&ths=true
 #
