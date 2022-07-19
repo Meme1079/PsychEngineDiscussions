@@ -19,6 +19,8 @@ We accept any type of discussion, but make sure to read the rules here:
 11. IM NOT ACCEPTING ANYTHING LIKE (Ban this guy!!!) IF IT WAS DONE OUTSIDE MY DISCUSSIONS
 12. No T r o l l i n g
 
+Any failure of respecting these rules can result of being banned (sometimes PERMANENTLY) for my discussions or/and being reported to Github itself
+
 If you wish to do an ban appeal, please go to this link https://docs.google.com/forms/d/1kX2q8-OtHIPoVuXaPA8ERd_-AZTsyvydNEHUwyT662c/edit?usp=forms_home&ths=true
 #
 
