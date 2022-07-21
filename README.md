@@ -21,8 +21,6 @@ We accept any type of discussion, but make sure to read the rules here:
 
 Any failure of respecting these rules can result of being banned (sometimes PERMANENTLY) for my discussions or/and being reported to Github itself
 
-If you wish to do an ban appeal, please go to this link https://docs.google.com/forms/d/1kX2q8-OtHIPoVuXaPA8ERd_-AZTsyvydNEHUwyT662c/edit?usp=forms_home&ths=true
-#
 
 ![TheoyeahPsychEngineDiscussions](https://user-images.githubusercontent.com/91833725/167202387-7fa0e212-9bc9-4578-9811-b41451409182.png)
 
