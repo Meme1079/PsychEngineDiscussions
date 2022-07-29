@@ -18,6 +18,7 @@ We accept any type of discussion, but make sure to read the rules here:
 10. If need to delete a discussion, please tell me
 11. IM NOT ACCEPTING ANYTHING LIKE (Ban this guy!!!) IF IT WAS DONE OUTSIDE MY DISCUSSIONS
 12. No T r o l l i n g
+13. No expose or drama
 
 Any failure of respecting these rules can result of being banned (sometimes PERMANENTLY) for my discussions or/and being reported to Github itself
 
