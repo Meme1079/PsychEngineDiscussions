@@ -19,6 +19,7 @@ We accept any type of discussion, but make sure to read the rules here:
 11. IM NOT ACCEPTING ANYTHING LIKE (Ban this guy!!!) IF IT WAS DONE OUTSIDE MY DISCUSSIONS
 12. No T r o l l i n g
 13. No expose or drama
+14. Any leaking of personnal information will get you reported & banned
 
 Any failure of respecting these rules can result of being banned (sometimes PERMANENTLY) for my discussions or/and being reported to Github itself
 
